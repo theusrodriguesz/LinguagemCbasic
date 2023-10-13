@@ -23,3 +23,4 @@ em que irei atuar.
 
 
 
+![c](https://github.com/theusrodriguesz/LinguagemCbasic/assets/126944619/688c7d11-6bb4-4245-a5c5-60b332143373)
